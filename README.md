@@ -14,7 +14,7 @@ yay heading
 
 ## Our Business Plan
 
-Always try to live up to our name.
+Always try to live up to our name.   
 Produce quality work for less (because our overhead is less).   
 Do not compete with our retail stores by selling carpet.   
 Keep all of our carpet and rug binding “lock-stitched".   
