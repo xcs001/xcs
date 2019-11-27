@@ -1,2 +1,2 @@
-# xcs
-pages for x carpet services
+# dells carpet services
+Quality - Experience - Dependability (work in progress)
